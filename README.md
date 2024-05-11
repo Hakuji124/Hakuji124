@@ -2,7 +2,7 @@
 - 👀 I’m interested in fun
 - 🌱 I’m currently learning english
 - 💞️ I’m looking to collaborate on youtube
-- 📫 How to reach me hakuji 
+- 📫 How to reach discord
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i love cats
 
